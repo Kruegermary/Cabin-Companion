@@ -1,0 +1,1 @@
+"If you're reading this years from now, I hope Cabin Companion still feels like home. We didn't build this to make people work harder. We built it to remind them they never have to build their dreams alone. One log at a time."
